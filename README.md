@@ -9,6 +9,6 @@
 💼 Looking for virtual internships and real experience opportunities
 
 🛠 Projects coming soon...
-🔗 Reach me at : pratushajaiswal@gmail.com 
+🔗 Reach me at : pratushaoff.19@gmail.com
 # PratushaJaiswal
 My Cyber Security learning portfolio 
